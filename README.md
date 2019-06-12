@@ -2,9 +2,15 @@
 敬拜資源整理
 
 ## 目錄
+  - [Worship Leaders](#Worship Leaders)
   - [音樂事工](#音樂事工)
   - [DVD](#DVD)
   - [採訪](#採訪)
+
+### Worship Leaders
+- Benny Hinn
+- Pual Wilbur
+- Don Moen
 
 ### 音樂事工
   - [讚美之泉](https://sop.org/)

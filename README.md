@@ -25,8 +25,6 @@
 |[Don Moen's Worship Workshop Series](https://donmoentv.pivotshare.com/authors/donmoentv/12774/media)|樂手、歌手、主領、樂團配置，英文DVD|
 |[黑味爵士](http://blackflavour.tw)|和聲、樂理、編曲技巧|
 
-  - 
-
 ### 採訪
   - [Rich Mullins on Heart to Heart with Sheila Walsh, 1992 (Complete Interview) (英文)](https://www.youtube.com/watch?v=zwuN03zyJ04)
 
@@ -36,3 +34,5 @@
 |--|--|
 |<b>我們是上帝的寶貝 <3</b>||
 |[天國的子民](https://www.youtube.com/watch?v=Cv8OGq50364)|盛曉玫|
+|<b>與上帝同行</b>||
+|[勇敢走出去](https://www.youtube.com/watch?v=w43QIZ79YbY)|讚美之泉 專輯12|

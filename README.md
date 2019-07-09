@@ -40,3 +40,5 @@
 |[天國的子民](https://www.youtube.com/watch?v=Cv8OGq50364)|盛曉玫|
 |<b>與上帝同行</b>||
 |[勇敢走出去](https://www.youtube.com/watch?v=w43QIZ79YbY)|讚美之泉 專輯12|
+|<b>進入安息</b>||
+|[住在你裡面](https://www.youtube.com/watch?v=SwOo8sFZQA8)||
